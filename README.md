@@ -1,6 +1,6 @@
 # Michael St.Claire
  
-**Engineering Executive · AI Systems · Distributed Architecture · People Leader**
+**Engineer / Architect**
  
 ---
 
